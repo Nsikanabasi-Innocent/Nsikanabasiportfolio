@@ -1,2 +1,0 @@
-# nsikanabasiportfolio
-My portfolio
